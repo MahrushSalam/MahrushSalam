@@ -1,5 +1,5 @@
 - 👋 Hi, My name is 'Mahrush Salam' and sometimes 'Milliseconds'
-- 👀 I’m interested in manga
+- 👀 I’m interested in Math
 - 🌱 I’m currently learning French
 - 📫 How to reach me msalam25759@gmail.com
 - ⚡ Fun fact: 1+1 = 2
